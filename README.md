@@ -1,0 +1,1 @@
+-oi meu nome é Julia, sou uma estudante do ensino médio, e também, do ensino técnico aonde eu curso ADM. Vai corinthians!
